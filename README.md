@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @mmd123123m
-- 👀 I’m interested in Gmae 
+- 👋 Hi, I’m @mmd
+- 👀 I’m interested in game 
 - 🌱 I’m currently learning programming & Eng language
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... TEl  @PW_ME ins Akaza1.1_
